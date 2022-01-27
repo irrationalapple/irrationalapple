@@ -1,3 +1,3 @@
 # me
 i do stuf                  
-[me](/illogicalapple) :p
+[me](https://github.com/illogicalapple) :p
